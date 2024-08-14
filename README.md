@@ -1,13 +1,18 @@
-# Oiiiiiiii 😳 Sou o Mateus, sou muito grato por estudar com o Jamal 🇦🇫
+# Oiiiiiiii 😳 Sou o Mateus, estudo na melhor escola do mundo inteiro e sou muito grato por isso.
 
-Estou estudando na escola com o Jamal 🦸 o Rei da escola e do mundo. amo meu professor.
-ele é meu professor favorito e ele é muito inteligente 🔯
+Estou estudando na escola com o Jamal
+ele é meu professor favorito e ele é muito inteligente 
+
+![](https://media1.tenor.com/m/w2mCAR7kgUsAAAAC/clash-royale-emotes.gif)
 
 # Quer falar comigo me chama no intagram? 🥇
 @mateuscachorro 🔥
 
+# Amo animais e pricipalmente cavalos.
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSjGktCLGTls-22ZH-AN7LhgnFz5-TTa6ntZQ&s)
 
-# Sou um fiel seguidor de Deus, AMO A BIBLIA. :godmode:
 ![](https://media.tenor.com/olbqwdnrxWgAAAAi/god-jesus.gif) 
 
-# TCHAUUUU!!
+# meu lindo projeto que demorei 30 dias para fazer.
+
+https://scratch.mit.edu/projects/966654613/editor
